@@ -2,4 +2,4 @@
 - 👀 I’m interested in web dasturlash
 - 🌱 I’m currently learning Reactjs
 - 💞️ I’m looking to collaborate on  
-- - 📫 How to reach me ...+998914408870 yoki telegram orqali(@Bekhzod_Istamov_0101)
+- - 📫 How to reach me ...+998936003011 yoki telegram orqali(@Bekhzod_Istamov_0101)
